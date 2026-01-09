@@ -1,0 +1,310 @@
+# ????? - ?????? (IELTS Vocabulary by Topic)
+
+?????????????????????????????????????/?????
+
+## 0. ????
+- Magoosh IELTS Vocabulary PDF??????????
+- 2500+ IELTS Vocabulary in 25 Topics????????
+- 1200 Common Words in IELTS Listening????????
+- IELTSWriting.ai ?????Top 1700???????
+
+## 1. ?????25 Topics?
+### People
+- administrator, adolescent, aunt, bond, casual, centre, characteristic, close, conscious, counsellor, course, cousin, empathise, fallible, gender, get on, great grandchildren, habitually, hardwired, in-laws
+- individual, inherent, institute, lifetime, meet, module, nephew, niece, night out, office hours, reliable, resemble, responsibility, self-esteem, service, sibling, sibling rivalry, sit, sociable, spouse
+- step, stereotypical, tendency, tutorial, uncle, workshop
+
+### Health & fitness
+- additives, aerobics, album, allergic, appetite, beneficial, cafeteria, chain restaurant, chapter, detrimental, episode, eradicate, gym, harmful, hunger, ingredients, intake, lifestyle, nutritious, plot
+- psychological, recipe, recovery, seasoning, sedentary, setting, severity, sports, suffer, treatment, well-being, work out, workout
+
+### Science
+- absorb, accumulate, advances, analyse, ascertain, basis, breakthrough, combine, contaminated, detergent, elementary, exposure, fertilizer, potential, precise, quantify, release, side effects, synthetic, toxic
+
+### Community
+- antisocial, appropriate, charitable, civilization, conduct, conform, considerate, conventional, cooperate, custom, device, engage, festival, foster, generation, innovation, interaction, mainstream, mindset, minority
+- mobile, multicultural, observe, pressure, revolutionize, shun, social media, supportive, voluntary
+
+### Study
+- achievement, acquire, cognitive, collaborate, compulsory, concentrate, curiosity, determination, determine, discipline, establish, failure, major, marks, methodical, miscalculation, primary, profound, review, secondary
+- significant, specialize, theoretical, valid
+
+### Advertising
+- bombard, commercialized, convinced, effective, endorse, entice, exaggerate, guarantee, gullible, ignore, incorporate, inescapable, intrusive, persuade, ploy, prominent, promote, unavoidable, visualise
+
+### Travel & places
+- abroad, accommodation, adventurous, attract, attractions, barren, basic, cautious, character, city centre, foreign, high rise, inhabitants, itinerary, landscape, leisurely, local, main square, memorable, outweigh
+- paradise, quaint, remote, rival, road trip, spectacular, spontaneous, storey, traditional, transport, unspoilt, vacation package, wander, wilderness
+
+### Government
+- assistance, authority, blame, bureaucracy, childcare, consensus, corrupt, depend, entitlement, expenditure, guidelines, healthcare, instability, instil, oppose, provide, regulation, resolve, taxpayer
+
+### Animals
+- captivity, co-exist, conservation, creature, cruelty, defence, domesticates, dwindle, endangered, grow, habitat, leave permanently, nocturnal, predator, safe, sanctuary, survival, thrive, venomous, vulnerable
+
+### Space
+- acclimatise, astronaut, boost, collide, debris, explode, explore, fascinating, fragile, frightening, hollow, infinite, misuse, prolonged, risky, rotation, surface, transmit, universal, vertical
+
+### Technology and Computer
+- addicted, appliance, come up with, computerized, creativity, cutting-edge, cyberbullying, dated, devise, digital, embrace, equipped, hardware, innovative, online, run-down, secure, surpass, technological, upgrade
+- virtual
+
+### Machines
+- accelerate, automated, consumer, consumerism, convey, discard, impractical, impulsive, lasting, manually, manufactured, mass-produced, operate, passing, purchase, rotate, technique, trendy
+
+### Fashion
+- disposable, donate, emerge, ethical, impulse, individuality, manufacturer, material, possessions, second-hand
+
+### City
+- affluent, amenities, apartment, commute, congested, deprived, detached home, downtown, flat, flatmates, homelessness, imbalance, inadequate, infrastructure, isolated, location, neighborhood, outskirts, overpopulated, overwhelmed
+- pavement, pedestrian, poverty, roommates, rural, sanitation, shortage, slums, suburb, transportation, urban
+
+### Environment
+- abruptly, agriculture, approximately, arid, balmy, cell, chilly, cultivate, deforestation, degrade, disaster, dramatically, ecosystem, emissions, environment, erosion, evolve, exactly, flora and fauna, gradually
+- hazardous, intervene, irrigation, logging, mammal, markedly, mediterranean, mist, muggy, pesticide, pollutant, pollution, reptiles, roughly, safeguard, seasonal, significantly, sleet, slightly, slowly
+- soil, species, specifically, steadily, sustainable, temperate, tropical, unprecedented, urgent, vegetation, vital
+
+### Energy
+- abundant, achievable, alternative, biofuels, consumption, curb, exploit, finite, generate, harness, maximize, mining, not easy to find, regulate, renewable, scarce, squander, supply, unsustainable
+
+### Issues
+- acknowledge, beat, chaos, contemplate, crisis, critical, development, disorder, dispute, diversity, escalate, globalization, inevitable, measures, ongoing, overcome, pressing, scenario, tackle, tolerate
+- total confusion, worsen
+
+### Business & Work
+- ambitious, bargain, career, colleague, competitive, conditions, deadline, delegate, demanding, discount, employee, entrepreneurs, financial, flexibility, haggle, high-street, household, leadership, manual labour, monopoly
+- negotiate, occupation, overtime, recruit, rewarding, salary work, sale, shift work, skilled, spree, unskilled
+
+### Crime
+- bystander, commit, consequence, deter, enforce, harsh, imprison, juvenile, legalise, lenient, offence, petty, predominantly, prevent, prohibit, prosecute, punish, soft, vandalism, weapon
+- wrongdoing
+
+### Media
+- biased, censor, conflict, controversial, distorted, emphasize, headline, impartial, imply, infamous, inform, live, manipulate, medium, paparazzi, scrutinize, sensational, speculate, spotlight, tabloid
+- verify, viewer, well-informed
+
+### Art
+- atmosphere, audience, collect, comical, date, dramatic, entertaining, escapism, exhibition, hobby, influence, inspire, interactive, lively, moving, outing, participate, pastime, perform, sacrifice
+- spectator, subjective, tedious, venue
+
+### Changes
+- abrupt, considerable, consistently, endure, gradual, imminent, imperceptible, insignificant, instantly, minute, moderate, persist, preceding, remnant, retrospect, shift, subtle, temporary, topical, turbulent
+
+### Letter
+- accidently, apologies, appreciate, available, behalf, consider, delighted, dissatisfied, enclosed, grateful, hesitate, inconvenient, privileged, propose, response, ruined, sincerely, unforeseen, unpleasant
+
+### Describing data
+- anticipated, comparison, decline, fluctuate, forecast, indicate, marked, noticeable, plateaued, previous, proportion, reach, relatively, repeatedly, steep, upward, variation
+
+### Essay writing
+- challenge, consequently, definitely, furthermore, moreover, nevertheless, notion, overall, whereas
+
+## 2. ???????Listening?
+### Adjectives
+- affordable, ancient, comfortable, confident, convenient, dull, energetic, exciting, extinct, fabulous, fantastic, flexible, immense, intact, intensive, knowledgeable, necessary, optimistic, permanent, pessimistic
+- practical, realistic, salty, social, suitable, tranquil, various, vast, voluntary ،mandatory, western
+
+### Color
+- a gap year, black, blue, brown, century, decade, fortnight, full- time, green, grey, midday, midnight, millennium, orange, part-time, pink expressions and time: three times, purple, red, three times per week, white
+- yellow
+
+### Countries
+- brazil, china, egypt, england, france, germany, greece, india, indonesia, italy, malaysia, mexico, new zealand, nigeria, north korea, pakistan, singapore, switzerland, the dominican republic, the philippines، denmark
+- turkey, united kingdom
+
+### Health
+- balanced diet, beans, blackcurrant, bread, carbohydrates, cereals, cheese, citrus fruits, disease, egg yolk, eggs, food pyramid, fruit, green pepper, keep-fit, leisure time, liver, meal, meat, medicine،treatment
+- milk, minerals, nursery, nursing care, nuts, outdoor activities, pasta, pizza, potatoes, protein, remedy, rice, salad bar, seafood, tai-chi, tomatoes, vegetables, vegetarian, vitamin, yoga
+- yoghurt, zinc
+
+### Homes
+- apartment building, avenue, basement, bedroom, block of flats, bridge, bungalow, car park, central station, chimney, coffee table, condominium, department store, dormitory, duplex, embassy, garden, ground floor, hallway, hospital
+- houseboat, insurance in the city: cities, kitchen, landlord, lane, lease, microwave, mobile home, oven, refrigerator, rent, road system, row house, semi-detached house, sofa, street, temple, tenant, terraced house, thatched cottage
+- town house
+
+### Languages
+- architecture and buildings: dome, bengali, bilingual, castle, chinese, filipino, fort, french, german, glasshouse, greek, hindi, hut, italian, japanese, lighthouse, linguistics, log cabin, mandarin, palace
+- persian, polyglot, portuguese, punjabi, pyramid, russian, sculpture, skyscraper, thai, trilingual
+
+### Marketing
+- business card, catalogue, collecting data, competition, customer, display, entertainment industry, interview, management, manufacture, mass media, merchandise, newsletter, poll, products, profit margin, questionnaire, recruitment, research method, special offer
+- statistic, strategies, survey, trainee, training, tv program
+
+### Materials
+- accountant, aluminum, architect, bone, captain, cashier, cement, ceramics, clerk, composite, concrete, copper, cotton, craftsman, curriculum vitae, decorator, designer, engineer, fabric, feather works and jobs: occupation
+- fiberglass, flight attendant, freelance, fur, glass, glue, gold, guard, leather, lecturer, lumber, mail address, manager, metal, office assistant, paper, pilot, plastic, profession, professor
+- psychologist ، volunteer, receptionist, rubber, secretary, silver, specialist, steel, stone, teacher, textile, vacancy, waiter, waitress, wax, wood, wool, work experience
+
+### Nature
+- acid rain, amphibian, avalanche, burring fossil, canyon the environment: greenhouse effect, carbon dioxide, catastrophe, cattle, cetacean, chemical-free, class, cliff, climate, coal, coast, contaminated. the animal kingdom: birds of prey, dam, degradation, desert, desertification
+- drought, earthquake, environmentally friendly, exhaust fumes, family, field, firewood, fish, flood, footbridge, forest, fossil fuels, genus, global warming, hill, hurricane, hydroelectric power, insects, island, jungle
+- lake, landfill, landslides, lion, livestock, mammals, mountain, nitrogen oxide, oasis, ocean currents, octopus, order, oxygen, penguin, peninsula, phylum, pond, poultry and game, power plants, primates
+- reef, reptile, river, rodents, sea level, seabirds, smog, soar power, soil conditioner, solar panels, source of energy, storm, temperature, tornado, typhoon, valley, village, volcano, waterfall, whale
+- wind turbine
+
+### Other
+- activity, attitude, burger, carriage, chocolate, circuit, commerce, creation, daily routine, decision, democrats, demonstration, dialect, dialogue, driving license, encyclopedia, entrance, evolution, farewell, frequently updated
+- fund-raising event, government, illiteracy, indigenous, junior, liberal democracy, libertarian, life expectancy, literary, lunar calendar, magnet, man-made, narrative, nature conservation, opportunity, original inhabitant, passport photo, pedestrian safety, personal fulfillment, practice
+- private sector, prize, procedures, process, prototype, proﬁciency, ramification, recipient, republicans, revolution, robot, satellite, senior, sewer systems, state, straight, strike, sufficient, traffic jams, ultrasound
+- umbrella, variety, videos, waiting list, welfare
+
+### Places
+- art gallery, backpack, ballet, bookshop, breaks, cafe, canteen, carnival, cassette, cinemas, city council, classical music, concert, conductor, conversation club, cottage, dance studio, digital monitor, disk, gadget
+- graphics, kindergarten equipment and tools: helmet, light, local library, mechanical pencil, museum, musical instrument, newspaper, orchestra, park, parliament, radio, restaurant, screen, silicon chip, sports centre, swimming pool, symphony, television, the arts and media: opera
+- the press, theatre, vocalist, wheels
+
+### Shapes
+- altitude, breadth, circular, curved, cylindrical, depth, frequency, height, imperial system, length, mass, measurement width, metric system, oval, polygon, rectangular, spherical, spiral, square, three dimensions
+- triangular
+
+### Subjects
+- advanced, anthropology, archaeology, architecture, assessment, attendance, bachelor's degree, biology, business management, certificate, chemistry, classroom, college, commencement, compound, computer centre, computer laboratory, department, dictionary, dining room
+- diploma, dissertation, economics, experience, experiment, extra background, facilities, faculty, feedback, foreign students, full-time, geography, give a talk, group discussion, handout, higher education, history, home stay, humanities studying at college, intermediate
+- international, introductory, knowledge, laptop, law, leaflet, lecture, library, literature, logic, main hall, mathematics, media room, outcomes, overseas students, pencil, performing arts, philosophy, physics, placement test
+- politics, post-secondary, printer, proofreading, psychology, publication, pupils, reference, registrar’s office, report writing, research, resources room, schedule, school reunion, science, speech, staff, stationery, statistics, student advisor
+- student retention, student support services, supervisor, tasks, teamwork, textbook, topic, tutor, university: course outline, visual arts, vocabulary, written work
+
+### Touring
+- aquarium, culture, guest, hostel, picnic, reservation, single double bedded room, souvenir, suite, ticket office, tourist attraction, tourist guided tour, trip, view
+
+### Transportations
+- aircraft, airport, airship, automobile, boat, cabin cruiser, canal boat, canoe, cargo plane, container ship, crew, dinghy sailing, ferry, gondola, helicopter, hire a car, hot-air balloon, hovercraft, hydrofoil, kayak
+- lifeboat, liner, narrowboat, paddle steamer, passenger, platform, punt, rowboat, rowing boat, sailboat, seaplane, shipment
+
+### Vehicles
+- breakdown truck, cab, camper, caravan, coach, double-decker bus, forklift truck, freight train, goods train, jeep, lorry, minibus, pickup, school bus, single-decker, stream train, subway, tanker, taxi, tow truck
+- tractor, tram, transporter, truck, underground, van
+
+### Verbs
+- arrange, borrow, develop, discuss, edit, exhibit, hunt, immigrate, learn, mark, register, revise, suggest, supervise, support, touch, train
+
+### Weather
+- antenna, breeze, cold, cool, dry, dusty, freezing, hot, humid, moisture, sticky, warm, weather forecast, wet
+
+### Workplaces
+- ability, appointment, cheap, clinic, colored, confidence, dangerous, dentist, disappointed, efficient, employer, employment, expensive, information desk, luxurious, poor quality, reception, satisfactory, satisfied, showroom
+- spotted, staff selection, stress, striped, strongly recommended, team leaders, technical cooperation, unemployed, vision
+
+### Continents
+- africa, asia, australia and antarctica, europe, north america, south america
+
+### Hobbies
+- archery, billiards, bowls, caving, chess, climbing, darts, embroidery, gardening, golf, ice skating, orienteering, painting, parachute, photography, pottery, scuba-diving, skateboarding, snorkeling, spelunking
+- stamp collection, woodcarving
+
+### Plants
+- bark, branch, cluster, core, flower, fungus, leaves, mushroom, roots, seed, stem, trunk, twig
+
+### Sports
+- abseiling, american football, athlete, badminton, barbell, baseball, basketball, bodyboarding, bungee jumping, canoeing, championship, court, cricket, cycling, extreme sports, gymnasium, hang-gliding, hockey, horse racing, jet-skiing
+- jogging, judo, kitesurfing, mountain biking, paragliding, ping-pong, pitch, polo, press-up, push-up, recreation, refreshment, rugby, show jumping, skydiving, snooker, snowboarding, soccer, squash, stadium
+- surfing, swimming, team, tennis, the discus, the hammer, the high jump, the javelin, treadmill, walking, white-water rafting, windsurfing
+
+## 3. ??/??????Magoosh?
+### Asking for Information
+- describe…, i need to know…
+
+### Confirming You’ve Gotten Information
+- above all, all in all, as a result, as i mentioned, as opposed to, because of, but, by this i mean, even more, even though, except for, for example, for instance, good question, hmm… (in hesitation), hmm… that’s difficult, however, i got it, i really don’t know, i suppose…
+- in addition, in fact, in other words, in short, indeed, interesting, i’d say…, let’s see…, like i said, not only, offhand, on the other hand, so, sometimes, sorry, still, such as, that’s a tough, this, thus
+- to, to give an example, to name a, truly, um…, unless, unlike, well, well…, we’ve been talking about…, which caused, which is to say, wow, you mentioned…, you say that…, …
+
+### IELTS Listening Vocabulary
+- family 5, school life 6, travel and places 3, work 2
+
+### IELTS Speaking Transitions: Introductory Phrases
+- etc…, first, first of all…, second
+
+### IELTS Speaking Vocabulary
+- about the authors 36, common questions 23
+
+### IELTS Writing Vocabulary
+- academic task 1 15, academic task 2 17
+
+### Vocabulary for IELTS Writing Task 2
+- add new information, compare and contrast ideas, describe results, give examples, give opinions, make conditional statements
+
+## 4. ??????IELTSWriting.ai Top 1700?
+### ?? (hz ? 6)
+- a.m, accidental, affect, airmail, also, among, angry, appear, ass, atlas, axis, bay, beetle, beneficiary, betray, birthday, blind, bribery, brilliant, broad
+- c/o, calmly, capability, capitalism, chairperson, charge, chemical, commence, commune, compel, comprehend, concerted, consist, constraint, contemptuous, contestant, conversation, convince, correspondent, counsel
+- crack, criticism, criticize, crumb, crush, curious, current, danger, declare, decompose, deed, dependant, depressed, deputy, destine, detail, dial, dialog, diesel, differ
+- digest, digit, diplomat, diplomatic, directory, disabled, disallow, document, doorway, doubt, educational, egyptian, elaboration, elemental, elimination, else, emperor, endow, englishman, environmental
+- epidemic, epoch, equally, etc, exasperate, exist, exoneration, fashionable, fate, faultless, feasible, fetch, filthy, fluency, football, forestry, foretell, friendship, fringe, fuss
+- gasoline, gaze, geometry, glassware, gleam, gloom, glory, granite, gratifying, greet, grope, harden, harvest, haste, hesitation, hold-up, hope, how, hull, hydroelectric
+- hygiene, illusion, inclusive, indoor, infantry, inflation, inspect, instruction, invent, involve, irritation, issue, jettison, keyboard, know, latter, laziness, leg, less, linger
+- liquor, lost, loudness, lower, magistrate, male, marketing, materialism, measurement, melon, minister, misty, motivation, mug, multiplication, narrow, necessity, nine, no, nod
+- nourishment, o'clock, obvious, old, opinion, opposite, optical, optional, organ, original, outline, package, partially, path, patronage, pedlar, pension, plague, plant, pluck
+- preach, predominance, prevailing, programer, progressive, protestant, qualification, qualify, quantitative, quantity, quest, quotation, rainy, raise, rank, realist, refusal, repent, replacement, resentment
+- resolution, restrict, rheumatism, sanitary, sardine, satisfactorily, scorching, senator, sender, serenity, shipowner, snow, somebody, soothe, spacious, specialty, spell, spider, sterling, stimulate
+- strap, stroke, succession, summarize, surprise, swede, sweetheart, telefax, tenth, than, think, thirty, thumbtack, tighten, trainer, tulip, tumble, ultimo, uncover, universally
+- unlikely, uphold, vengeance, warrior, watchful, waterproof, weep, whether, whip, woe, wordy, world, worship, abeyance, abide, abreast, accede, accomplish, accustom, adjustable
+- admission, affirm, airliner, airplane, ampere, angel, annex, announce, anticipate, antonym, apprize, april, assertion, astray, atlantic, aural, averagely, backwardness, barrel, behind
+- bible, bike, bill, blaze, blot, boiling, bomb, boom, boundary, brandy, brightness, broker, bubble, cake, canal, carve, casualty, celebration, centigrade, cereal
+- classification, clearly, cleverness, cling, coastal, coffin, cohesion, color, colorless, comedy, command, committee, communicate, comparable, compare, compute, concentration, concurrence, condition, conqueror
+- conscience, constitution, contest, cordial, cork, corrosion, cosmetics, couple, crimson, cure, dealing, deduction, delete, delight, democratic, destiny, dine, disagreement, disc, disgrace
+- disinfectant, disposed, distinguish, doctor, duplicate, enchant, english, enjoyable, eventually, excessive, explanatory, exposition, expressive, extinction, extract, fade, fame, favor, february, feeble
+- finger, fireman, firm, flesh, fluctuation, footstep, formal, freely, frenchman, frustration, function, fundamental, furniture, giant, giver, glitter, greed, ground, hail, handbag
+- handle, hardly, headmaster, heartfelt, heated, hurrah, husband, image, immortal, impurity, infection, influential, influenza, informative, instable, installment, insure, invention, ireland, islam
+- itself, jewish, joint, jot, journalism, july, lawn, leap, learned, lighten, like, link, logical, loss, machine, magnitude, maid, manifest, marketable, marvellous
+- mask, mental, mesh, might, mighty, miserable, mislead, misunderstand, modest, modulate, moment, morning, motel, mournful, mutton, nameless, nearly, negro, neutron, occidental
+- oneself, optimal, originally, our, out, overcast, peach, pedal, perturb, petroleum, physically, pioneering, pious, plead, plight, plough, preliminary, presentation, productive, pronunciation
+- property, puff, purchaser, puzzle, radar, reason, recollection, refined, refugee, relish, remark, renewal, repetition, resemblance, resistant, resort, reward, rigidity, rigorous, rinse
+- roman, safely, savage, say, scholarship, scientific, scratch, scream, shake, shelter, sideways, size, slander, snowstorm, socialist, solely, solve, solvent, sore, spur
+- steam, stillness, stool, striking, submarine, subsidiary, substantiate, suburban, succeed, successfully, such, superstition, suppose, suspend, swift, table, tactics, tell, thirteen, thrifty
+- thunder, tie-up, tigress, tomato, tonne, transferable, trouble, uncertain, uncomfortable, unite, united states, unsuitable, up-to-date, variance, verbal, violin, virtually, volley, wag, waive
+- want, weak, wedding, wednesday, weekend, weekly, will, willingness, wink, wretched, yield, about, abuse, accusation, acquainted, affection, aid, ailment, alas, analogue
+- analyze, anger, antagonism, anything, aptitude, assignment, author, automatic, autumn, availability, aware, banker, banking, bathroom, batter, beast, bed, besides, bleach, bow
+- boxing, brace, breach, bruise, burial, campaign, cape, chance, chin, christian, clip, code, collision, comb, comment, convenience, cordially, cosmos, cover, craziness
+- cultural, damn, deceit, deposit, derivation, description, diamond, dig, discourse, discovery, diverge, draft, drill, duration, dusk, eliminate, emotion, empty, encounter, engineering
+- engulf, epoch-making, erase, excellent, execution, exert, exploitation, explorer, expressway, extremely, feed, fellowship, fighter, figurative, filter, fire, fleet, flock, following, fork
+- formulate, fragrant, frequent, friday, glad, glisten, gloomy, gnaw, go, grape, great, greenhouse, handful, he, hit, housework, hurry, hydraulic, iceland, illegible
+- impress, impressive, imprisonment, infinity, injustice, installation, insulate, interrupt, interval, invade, investment, inward, jealous, knight, l/c, label, lay, leftover, lend, liberation
+- limestone, literally, lock, longevity, loop, loudspeaker, luminous, magic, manhood, manual, marshal, materialize, meaning, memorial, method, midst, milky, miniature, missile, mixer
+- monastery, moss, motivate, nature, negate, nestle, nominate, noted, obliterate, occasion, officer, paint, pamphlet, parish, peak, perturbed, piano, pin, plaster, pleasant
+- plus, pneumonia, poisonous, polish, popcorn, portion, post-office, prairie, pray, preposition, preserve, procedure, prospect, punctual, qualified, quilt, radial, reader, reconcile, reduce
+- refresh, reimburse, relay, respect, restless, restrictive, ribbon, rich, run, scare, scold, scope, scorn, screech, sense, serene, severely, signal, silky, sixty
+- skillful, skirt, slogan, slumber, smoking, sow, space shuttle, sportsmanship, standpoint, stay, stern, stew, stock, stoop, storage, stretch, subsequent, summon, superintendent, surroundings
+- swarm, tale, tall, tape-recorder, tease, then, thereby, these, thumb, tick, toad, tobacco, together, toil, tough, traverse, triplicate, trousers, turbine, turning
+- tyrant, until, uranium, utilize, versatile, veteran, via, violent, visual, volleyball, vouch, wild, withdraw, accurately, active, actor, adverse, after, against, age
+- allocate, alloy, annoy, appreciably, arabic, area, array, arrow, attribution, award, backing, baffle, bang, basket, behavior, benefit, benevolence, beyond, bicycle, blow
+- bookshelf, bossy, brake, bring, brother-in-law, businesslike, butter, bypass, capitalization, ceremony, chick, cigarette, classmate, closely, closet, coherent, commemorate, compatible, complete, complicated
+- comprise, comrade, concerning, conclude, confusion, container, context, cooperation, cooperative, credit, darling, deaf, dean, deem, delinquency, deliverance, denial, denote, depress, despite
+- dictator, dictatorship, direct, disagree, disclaim, displacement, disposal, dissolve, distinct, disturbance, documentary, doze, drastic, driver, dumb, duty, eager, economical, effect, efficiency
+- embarrassment, endanger, endorsement, enrich, erasure, excursion, exercise book, expense, explosive, fairy, favorite, fbi, female, fist, flash, fluid, fob, follower, food, fortuity
+- fraction, frame, free, gale, ghost, gracious, gram, grandparent, graph, greedy, groan, guitar, halve, hay, heap, helpful, hinge, horrify, host, hour
+- house, housewife, hysteric, identity, ill, illiterate, imperative, impossibility, improve, incident, indicative, ingenuity, integral, integrity, intense, internal, invoice, iron, knee, kneel
+- license, limb, loyalty, lucky, mankind, martyr, mat, meadow, messenger, methodology, microprocessor, middling, miser, misgiving, modern, monstrous, most, mouse, mysterious, nation
+- navel, necessitate, needful, network, nineteen, nobility, nose, notable, notify, novelty, numerous, nun, oak, observation, obtain, occurrence, oppression, optimism, ourselves, outdoor
+- overlapping, ownership, packet, parasite, participation, penicillin, penny, peripheral, persistence, phonetics, pilgrim, plan, playwright, pollute, porcelain, pore, postpone, powder, pretend, prevention
+- previously, privilege, probable, producer, prosperity, puppy, queen, quiet, quote, ratify, readily, refute, reinforce, relinquish, resident, resist, respectable, retain, robber, rude
+- runner, sag, sensation, sensible, short, shroud, shut, silly, socialism, sole, sprinkle, stab, stability, staple, statement, steal, stipulation, strengthen, stride, strip
+- subtract, suck, superiority, sweater, sympathy, tend, tenor, tent, theme, throughout, tin, tolerance, tombstone, truth, tunnel, tyre, understand, unfortunately, unstable, vender
+- verification, version, victim, vividly, voyage, wade, ware, watery, weary, whenever, whereby, wounded, wrap
+
+### ?? (hz 3-5)
+- absent-minded, absolutely, abstraction, accommodate, acknowledgment, adjust, african, aggression, ajar, allied, alternate, amateur, ambition, ash, assume, atomic, attentive, aviation, baker, behave
+- bitterness, blend, bodyguard, bowling, brass, brick, brochure, brook, canadian, caption, carpet, carrier, cavity, cease, centimeter, certification, check, chiefly, clockwise, cloth
+- commemoration, condemnation, consideration, consistency, consolidate, contextual, contrary, cost, couch, countermeasure, coward, currency, deduce, deepen, defect, delicate, demand, democracy, den, detour
+- deviate, dictate, differently, direction, distinction, diverse, do, dodge, domain, draw, duck, dweller, eagle, elaborate, emigrant, enter, enterprise, equality, equivalence, expiration
+- explanation, expressly, fabrication, faithfully, farther, fathom, faulty, feather, feel, feudalism, fictional, financier, fine, flow, for, formation, frank, frightful, frown, funny
+- furnace, further, game, gardener, garlic, glut, grant, grass, grasshopper, greatly, half, harm, hello, hemisphere, herself, hi, high, honey, icy, idle
+- illuminate, illustration, immigrant, immoral, impatient, importance, incapable, inclusion, incomplete, increase, incredible, indefinitely, ingenious, irrespective, irrigate, its, jazz, kettle, labor, layday
+- leading, leisure, lending, lofty, loud, lovely, luxury, manage, marginal, meeting, memo, microscope, mineral, mobilize, moonlight, moor, movement, mud, mumps, municipal
+- mutual, naughty, neglect, now, nurse, oblige, observer, offend, olive, optimize, oscillation, outright, overextend, overhead, overpayment, pale, panoramic, paralyse, parking, party
+- passable, pawn, per, performer, petrol, physicist, plentiful, political, popular, population, precede, pretense, princess, proficient, pronoun, prose, protocol, provocation, radish, rare
+- regret, repetitive, repudiate, request, role, rotary, rotten, said, sail, sandy, sarcastic, saturation, scan, scar, scarcity, scenery, seal, search, seldom, selfish
+- shed, sheriff, sigh, silk, simplify, simulate, sincere, situate, skiing, smuggler, snatch, sneaker, sneer, sociologist, softly, solitary, soon, sophistication, spare, sparkle
+- special, spread, stand, stare, starve, steer, stroller, sullen, sun, sunday, sunshine, supplementary, take, the, thicken, thinker, tired, toast, tongue, tradition
+- translate, tray, underestimate, underneath, uneasy, unfit, upset, urgently, utensil, vegetable, ventilate, villain, vocation, voltage, volume, voucher, way, wealth, weather, whisky
+- whistle, wholesaler, willingly, winter, woods, worthless, aboard, accordingly, accounting, accurate, acquaintance, acquisition, adjective, adviser, agreeably, alienation, alignment, alive, alone, archaeologist
+- arithmetic, around, arrival, assault, assembly, assist, attain, bat, belief, below, beside, billion, birth, bit, blockage, bookcase, booming, bound, break, brighten
+- brood, business, capital, catalyst, catch, cemetery, cent, ceremonial, chatter, cheque, clamp, coincide, commonwealth, comparative, complement, conference, contradict, correspondence, country, courtesy
+- craft, creamy, crisp, cry, crystal, cucumber, cultivation, danish, daughter-in-law, deafen, dear, december, decided, decisive, deliver, departure, depiction, descendant, design, detailed
+- diagram, disgust, disillusion, down, drum, dwell, dwelling, eastward, economically, effectively, elusive, enemy, enlightening, enthusiasm, envelope, equal, equator, equipment, examine, exhausted
+- exhaustion, expect, explicitly, extravagant, fable, fanatic, feud, fireplace, foresee, forthcoming, fortunately, fourth, goal, graduation, gravel, graze, greengrocer, greeting, guess, gulp
+- handkerchief, hardy, hasty, heavily, heroic, hip, holy, hospitable, humble, hypothesis, inconsistent, inconvenience, incoterms, independence, inferior, infinitely, inquire, instead, insurance, jam
+- jog, kilometer, king, kiss, knot, lack, landing, last, listen, literate, lottery
+
+---
+**????????????**: 2997
