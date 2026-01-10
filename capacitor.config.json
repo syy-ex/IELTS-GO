@@ -1,0 +1,13 @@
+{
+  "appId": "com.ielts.vocab",
+  "appName": "雅思词汇",
+  "webDir": "www",
+  "server": {
+    "androidScheme": "https"
+  },
+  "android": {
+    "allowMixedContent": true,
+    "captureInput": true,
+    "webContentsDebuggingEnabled": false
+  }
+}
